@@ -1,1 +1,0 @@
-# hacknight-2019
